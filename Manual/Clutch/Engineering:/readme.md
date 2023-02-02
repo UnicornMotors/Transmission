@@ -1,0 +1,1 @@
+- [Manual Clutch Working Principle and Animation](https://youtu.be/lqo0_StXf4M)
