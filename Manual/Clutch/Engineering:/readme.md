@@ -1,1 +1,2 @@
 - [Manual Clutch Working Principle and Animation](https://youtu.be/lqo0_StXf4M)
+- [Learn How a Clutch Works - Basic Clutch Operation and Tips](https://youtu.be/9UmrCl2nLKM)
