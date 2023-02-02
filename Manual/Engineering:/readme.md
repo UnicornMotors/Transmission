@@ -1,1 +1,2 @@
 - [Manual Transmission Operation](https://youtu.be/vOo3TLgL0kM) by: WeberAuto
+- [How a Manual Transmission and Clutch Works](https://youtu.be/o1ED4FQjDGk) by: Animagraffs
